@@ -1,4 +1,1 @@
-Youre off to great places, today is your day. Your mountain is waiting, so get on
-your way.
-
-Dr. Seuss
+"A strong woman doesnt need to read the future. She makes her own"
